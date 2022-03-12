@@ -1,7 +1,7 @@
 ### Olá, eu sou o Fábio  👋
 
 
-- 🔭 Hoje trabalho como aux. administratio..
+- 🔭 Hoje trabalho como aux. administrativo..
 - 🌱 Estudante de  ADS 
 - 💬 contate-me no e-mail: koto.oibaf@gmail.com
 
